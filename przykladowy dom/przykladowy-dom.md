@@ -1,3 +1,5 @@
+# Przykładowy dom
+
 Prezentujemy dzisiaj Państwu atrakcyjny dom, który może być doskonałym rozwiązaniem dla Inwestorów poszukujących budynek parterowy w stylu, który łączy tradycję budowania z drewna z nowoczesnymi rozwiązaniami technologicznymi i estetycznymi.
 
 Budynek ma ponad 122m2 powierzchni mieszkalnej oraz taras 30m2. Dom ma trzy sypialnie: głowna ma prawie 15m2 i posiada własną łazienkę, dwie inne sypialnie mają każda ponad 12m2. Salon 42m2 jest połączony z kuchnią. Osobno jest druga łazienka, szatnia i kotłownia.
