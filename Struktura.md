@@ -1,4 +1,4 @@
-# Zakladki
+# Zakładki
 
 - o nas
 - projekty
