@@ -22,7 +22,7 @@ Uzupełnienie treści zostanie wykonane przez Zamawiajacego.
 
 ## Czas realizacji
 
-Czas realizacji, liczony od zatwierdzenia oferty, wynosi 18 dni roboczych
+Czas realizacji, liczony od zatwierdzenia oferty oraz ostatecznego projektu graficznego i opłaceniu pierwszej faktury.
 
 ## Forma rozliczenia
 
